@@ -8,3 +8,4 @@
 
 ## What's your Favorite hobby?
 ###### I love to hang around with my friends can goof off on my free time. Having some time outside of school to enjoy life balances my life with school as I have both the time to lock in and enjoy childhood.🏫 Not only that, I like to participate in sports as it is pretty fun when playing with others. Sometimes I play games with my friends online and hop on vc, but I would rather just hang around with them afterschoool.🎮
+  
